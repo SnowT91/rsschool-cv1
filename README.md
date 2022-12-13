@@ -1,1 +1,1 @@
-[https://snowt91.github.io/rsschool-cv/cv]
+[https://snowt91.github.io/rsschool-cv/]
